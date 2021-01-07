@@ -30,7 +30,14 @@ K stuff
 
 #### links
 * ###### beller
-  -
+  - keep the broader theory that the card is making - it has the right idea - just like make sure that the card isn't there anymore lmao
+* ###### benjamin
+  - make more offensive not defensive.
+
+#### impacts
+* can add shaw to the 1nc - shorten it tho
+* can read the pasquinelli ev in the 2nc if they bring up util. Maybe grove evidence? ecology of war turn. 
+
 
 #### greenhill aff
 * the link ev is wrong - generally, try to use evidence from their solvency.
