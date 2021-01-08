@@ -1,5 +1,5 @@
 
-Chapter 7.1 - Shifting Power
+Chapter 7.1 - Shifting Power - For Quiz? 1/11
 ================
 
 Understand the Context
