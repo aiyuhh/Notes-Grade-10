@@ -86,3 +86,61 @@ chapter proper
 
 
 #### Self-Determination in the Ottoman Collapse
+* ottoman empire had few exports and low agri in 20th century beginning
+  - relied on it being trade centre.
+
+
+- The Young Turks
+  - reformers who wanted a constitution and turkification (create a unified Turkish culture for the empire).
+    - Difficult because Armenians were in the empire and were christian unlike the majority of the country which was islamic.
+    - led to scapeogting of armenians by the Young Turks for econ problems.
+
+
+- fight against foreign influence
+  - Turks didn't like EURpns (esp. GB/FR) for econ policies (had influence).
+    - unprofitable for the Turks.
+    - led to allying with GER in WW1
+      - defeated, led to allies dismantling the emprire
+        - now Republic of Turkey + smaller states
+        - allied forces sent troops to occupy - meant sultan was purely symbolic at this time - puppet for GB
+
+
+- rise of Ataturk
+  - Turkish National Movement gained power during WW1
+  - led by Mustafa Kemal
+  - defeated GB + others in 1921
+  - est. republic of turkey in 1923
+  - kemal was first president, named Ataturk
+    - "father of the Turks"
+    - reformed turkey to make it like western Democracy.
+      - wanted secularism
+      - reforms
+        - est. public education
+        - abolishing polygyny
+        - expanded suffrage
+        - wore western clothing as a gesture.
+    - was dictator for 15 years, never gave up power.
+
+
+#### Power Shifts in Mexico
+ - Mexico was independent with dictator Porfirio Diaz entering 1900s.
+   - stability, progress
+   - allowed foreign investors control of resources
+   - HUGE wealth gap - 97% land controlled by 1%.
+   - typical peasant was landless.
+
+
+  - Revolution
+    - Diaz jailed Francisco Madero - opposition pres. candidate.
+      - this + bad policy + foreign influence + no land reform = MX revolution
+    - Madero escapes, went to Texas, set up offices.
+      - his troops, commanded by Francisco "Pancho" Villa - defeated troops, Diaz went into exile. redistributed land to peasants
+    - immediately after decade, instability and violence
+      - 2 million war deaths out of 15 million.
+      - 2 results
+        - new constitution in 1917 which had land redistribution/suffrage/pub. ed.
+        - PRI (Institutional Revolutionary Party) formed 1929, dominated MX pol. all presidents until 2k.
+
+
+### Questions?
+none rip
